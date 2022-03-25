@@ -1,7 +1,7 @@
 # **DARYA TURKULETS**  
 # *Contacts* 
 * ## mail: <darya.turkulets@gmail.com>
-* ## phone: +375339002650
+* ## phone: +375-33-900-26-50
 * ## rs school:  tdarya
 # *About me*
 ## Target:
